@@ -1,0 +1,1 @@
+Kanye Daily presents to you quotes from megalomaniac weirdo Kanye West. I personally find his words to be strangely grounding and unsettling. It's hard to take anything he says seriously, but perhaps some truth lie deep in its bones. For amusement or inspiration. No judgement here. lol.
